@@ -17,21 +17,21 @@ At the end of the discussion thought, Bruce Sterling told the audience out of th
 
 Indeed MIT Medialab was accepting annonymous funds to sponsor obscur science project that we are still trying to decypher here on github actualy:)
 
-We found out that most kids accepting grants from MIT medialab have never been trained in any critical or political mindset, just entreuprenarial pitches and human calculators agregators of private often pattented datas presented inna form of design fiction mini stories, verry inspiring often shinny but much hollow
+We found out that most kids accepting grants from MIT medialab have never been trained in any critical or political theories, virgin in thoughts with potentialy life changing biotechnologies, What could go wrong when young kids trained with an entreuprenarial mindset agregating datas to present to investors.
 
-Once we visited a lab in NYC partly sponsored by the Medialab, a kid in downtown NYC squatting in his luxurious sky crapper parent flat... showing off his check that he received from the Medialab so he could buy more lab equipment for a project in olympic games in Tokyo...changing colours of plants by modifying them genetically...what's next? a Virgin Galatic travel outer space?
+Once we visited a lab in NYC partialy sponsored by the Medialab. A kid born in a luxurious downtown NYC surrounding (daddy is a doctor). He was showing off his check that he received from the Medialab so he could buy more lab equipment, a camera was pointed at him so he kind of told many stories at once. But as soon as you confront these priviledged bourgeois individals with who sponsors them you start to create the oposit of what science should be: transparency, they often use transparency and open source narrative but they realy are about the total opposit.
 
 ![Screen Shot 2021-08-14 at 10 38 58 AM](https://user-images.githubusercontent.com/86488172/129440809-cf6cb838-9d7e-435d-9bde-60bd1336fccd.png)
 
 
-By avoiding to look at the dark side you fuel anti-science behaviours, how science is being sponsored matter. Yes its unconfortable to face politics sometimes. This is why sarcastic poets like Bruce Sterling exists, satire live and direct. We have seen it all in the cyber space.
+By avoiding to look at the dark side of sponsors we fuel anti-science behaviours and complotism to a level never reach before, how science is being sponsored matter. Yes its unconfortable to face politics sometimes, but it could avoid the whole dramatic event that the MIT medialab had to face. Controversies with Bill Gates and Jeffrey Epstein sponsorship, behind secret science projects.
 
 
 ![Screen Shot 2021-08-14 at 10 44 38 AM](https://user-images.githubusercontent.com/86488172/129442592-a1adca7c-49f5-470a-ab03-dec9f3097628.png)
 
 ### open source / transparency / inclusivity / diversity 
 
-those are the keywords to sell products nowadays, As curators we don't care how much money you are laundering, or if you are a pimp, but we care H O W you treat the people working with you. This is not an advice, it's a trigger warning, please stop legitimizing  wealthy sociopath with eugenistic vision, or we'll keep sending cyber-anthropolgists to your live events.
+those are the keywords to sell products nowadays, As curators we don't care how much money you are laundering, or if you are a pimp, but we care H O W you treat the people that you work with. This is not an advice, it's a trigger warning, please stop legitimizing  wealthy sociopath with eugenistic vision.
 
 here is the full story about MIT Medialab vs Biohacking Safari on [medium](https://medium.com/@BHsafari/sxsw-is-crazy-synbio-is-here-to-stay-5ae40a1c5fbf) 
 
