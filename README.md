@@ -17,7 +17,7 @@ At the end of the discussion thought, Bruce Sterling told the audience out of th
 
 Indeed MIT Medialab was accepting annonymous funds to sponsor obscur science project that we are still trying to decypher here on github actualy:)
 
-We found out that most kids accepting grants from MIT medialab have never been trained in any critical or political theories, virgin in thoughts with potentialy life changing biotechnologies, What could go wrong when young kids trained with an entreuprenarial mindset agregating datas to present to investors.
+We found out that most kids accepting grants from MIT medialab have never been trained in any critical or political theories, virgin in thoughts with potentialy life changing biotechnologies i hands. What could go wrong when young kids trained with an entreuprenarial mindset agregating datas to present to investors. It's like Jeff Besoz being the Washington POst, what can possibly go wrong.
 
 Once we visited a lab in NYC partialy sponsored by the Medialab. A kid born in a luxurious downtown NYC surrounding (daddy is a doctor). He was showing off his check that he received from the Medialab so he could buy more lab equipment, a camera was pointed at him so he kind of told many stories at once. But as soon as you confront these priviledged bourgeois individals with who sponsors them you start to create the oposit of what science should be: transparency, they often use transparency and open source narrative but they realy are about the total opposit.
 
