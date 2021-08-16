@@ -5,35 +5,6 @@
 - 📫 please dont contact us, we will.
 
 
-In 2015 we had the opportunity to bring excelent minds around the table at SXSW, We curated lectures and workshops with Bruce Sterling as techno-Shaman in chief and Joi Ito entrepreneur/guru and ex-director at the MIT medialab as well as George Church (white man with god complex). 
-
-Sadly George Church, was afraid of the meeting and never showed up, but wine was definetly poored into Bruce's glass, and Joi Ito called us ''trouble makers''. The intro was set up propper, pop corn reaady, the show could begin.
-
-We talked about science fiction and bourgeois bio-art inspired from cyberculture and counter culture narratives within the fabric of certain biomaterial design for sustainability. Frankly it was heaven on earth and warm weather too, East coast meet West coast in Austin, George CLinton rehearsing with the P-funk orchersta near by, what else could you possibly need?
-
-At the end of the discussion thought, Bruce Sterling told the audience out of the blue '' you're not a community untill you face your dark side'' and literraly took over di mood...even the Medialab tweeted about it, realy by now it should be an NFT (under name: cryptopunk.prophecies.sxsw..biohack.wine.biatch) you're welcome:
-
-![Screen Shot 2021-08-14 at 10 53 54 AM](https://user-images.githubusercontent.com/86488172/129442140-2599372c-2cb8-4fdd-ae9b-32889e301c07.png)
-
-Indeed MIT Medialab was accepting annonymous funds to sponsor obscur science project that we are still trying to decypher here on github actualy:)
-
-We found out that most kids accepting grants from MIT medialab have never been trained in any critical or political theories, virgin in thoughts with potentialy life changing biotechnologies in hands. Decolonizing knowledge becomes key when you want to make people trust science again. What could go wrong when young kids trained with an entreuprenarial mindset agregating datas to present on tiktok to a bunch of investors? It's like Jeff Besoz bying the Washington Post, what can possibly go wrong within the production of information/knowledge. At least dont erase that fact from reality, or chaos will ensure.
-
-Once we visited a lab in NYC partialy sponsored by the Medialab. A kid born in a luxurious downtown NYC surrounding (daddy's a doctor). He was showing off his check that he received from the Medialab so he could buy more lab equipment (''basically it's Joi Ito paying me'' he said) a camera was pointed at him so he kind of told many stories at once and the ego was talking out loud. But as soon as you confront these priviledged bourgeois individals with who sponsors them you start to create the oposit of what science should be: transparant at heart. In Academia they often use transparency and open source narrative but they realy are about the total opposit hiding the collonial matrix of knowledge.
-
-![Screen Shot 2021-08-14 at 10 38 58 AM](https://user-images.githubusercontent.com/86488172/129440809-cf6cb838-9d7e-435d-9bde-60bd1336fccd.png)
-
-
-By avoiding to look at the dark side of sponsors we fuel anti-science behaviours and complotism to a level never reach before, how science is being sponsored matter. Yes its unconfortable to face politics sometimes, but it could avoid the whole dramatic event that the MIT medialab had to face with the resignment of brillant mind like Joi Ito. Controversies with Bill Gates and Jeffrey Epstein sponsorship, behind secret science projects...please next time dont pretend fighting against extremism in american society, you might be part of the problem.
-
-
-![Screen Shot 2021-08-14 at 10 44 38 AM](https://user-images.githubusercontent.com/86488172/129442592-a1adca7c-49f5-470a-ab03-dec9f3097628.png)
-
-### open source / transparency / inclusivity / diversity 
-
-those are the keywords to sell products nowadays, As curators we don't care how much money you are laundering, or if you are a pimp, but we care H O W you treat the people that you working with. This is not an advice, it's a trigger warning, please stop legitimizing  wealthy sociopath with eugenistic vision, or you do not desevre being in the knowledge bizness.
-
-here is the full story about MIT Medialab vs Biohacking Safari on [medium](https://medium.com/@BHsafari/sxsw-is-crazy-synbio-is-here-to-stay-5ae40a1c5fbf) 
 
 
 <!---
