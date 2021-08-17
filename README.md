@@ -1,5 +1,5 @@
 - 👋 Hi, we're @gambiologits
-- 👀 we're interested in ''decolonizing'' knowledge
+- 👀 we're interested in science and music
 - 🌱 we're currently working mith mycelium and biodata
 - 💞️ we're looking to collaborate with decolonial guilds of knowledge
 - 📫 please dont contact us, we will.
