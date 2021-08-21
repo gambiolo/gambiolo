@@ -11,17 +11,39 @@
 
 
 # 2021 was the year of creating a more low tech web environnement 
-# here an intro:
+# here's an intro:
 
 ## - 10 years of media mass production in screenshots  > [portfolio](https://gambiolo.github.io/media-portfolio/) 
 
 ## - 7 years of worldwide curating lectures/conferences/worshops > [links](https://gambiolo.github.io/curation-portfolio/)
 
-## - A linktree with 8 links to discover and to get deep into current projects  > [hyperlinks](https://linktr.ee/dailylaurel)
+## - 7 Years of exploration and anthropological studies from the [Techno-scene](https://www.flickr.com/photos/79382209@N05/sets/?fbclid=IwAR02Tu1dptDLE2LMHFWjO0JiL_E5B7dy1zAO5iBM3kDxnuLrrV_I6qXmB50)
+
+## - A linktree with 8 links to get deep into our current projects  > [hyperlinks](https://linktr.ee/dailylaurel)
 
 ##  We also produce content and videos in extreme environement here's an exemple for Viceland channel:
 
 [![also we do videos in extreme environement here's an extract ](https://user-images.githubusercontent.com/86488172/130331627-daa029dc-796e-4b87-ba34-52c3db63d900.png)](https://www.facebook.com/dailylaurel/videos/1822920581289077/ "Viceland collab")
+
+We also had the opportunity to do collabs with festivals, labels and sponsors in the music indsutry such as:
+
+ 
+
+- Moodyman / 
+- Madlib /
+- Cymande 
+- Gilles Peterson /
+- Lord Quas /
+- Dekmantel /
+- Resident Advisor /
+- Boiler Room /
+- Rough Trade /
+- Brainfeeder /
+- Ninja Tunes /
+- Carharttwip / 
+- Rappcats /
+- Dimensions / 
+- J.A.W familly /
 
 
 
