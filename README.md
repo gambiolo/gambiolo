@@ -5,6 +5,18 @@
 - 📫 please dont contact us, we will.
 
 
+We have decolonized our heavy traces of pictures and videos on the web to a more lightweight form of propaganda
+
+10 years of story tayloring worldwide, check my [DIY low def portoflio](https://gambiolo.github.io/media-portfolio/) extract
+
+7 years of Curating and orgaising/talking at [conference worldwide](https://gambiolo.github.io/curation-portfolio/)
+
+
+
+
+
+
+
 
 
 <!---
