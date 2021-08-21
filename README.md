@@ -17,7 +17,7 @@
 
 ## - 7 years of worldwide curating lectures/conferences/worshops > [links](https://gambiolo.github.io/curation-portfolio/)
 
-## - A linktree with 8 links to discover and to get deeper  > [hyperlinks](https://linktr.ee/dailylaurel)
+## - A linktree with 8 links to discover and to get deep into current projects  > [hyperlinks](https://linktr.ee/dailylaurel)
 
 ##  We also produce content and videos in extreme environement here's an exemple for Viceland channel:
 
