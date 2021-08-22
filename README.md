@@ -17,7 +17,7 @@
 
 ## - 2013-2021 worldwide curating > [links](https://gambiolo.github.io/curation-portfolio/)
 
-## - 2013-2021 anthropology & the ['Technoscène'](https://www.flickr.com/photos/79382209@N05/sets/?fbclid=IwAR02Tu1dptDLE2LMHFWjO0JiL_E5B7dy1zAO5iBM3kDxnuLrrV_I6qXmB50)
+## - 2013-2021 anthropology in the [Biotechnoscène](https://www.flickr.com/photos/79382209@N05/sets/?fbclid=IwAR02Tu1dptDLE2LMHFWjO0JiL_E5B7dy1zAO5iBM3kDxnuLrrV_I6qXmB50)
 
 ## - A linktree with deep > [hyperlinks](https://linktr.ee/dailylaurel)
 
