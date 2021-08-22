@@ -1,51 +1,60 @@
-# Meta-transdisciplinarian in motion
+# Meta-transdisciplinarian is:
 
-- 💻 not journalist /
-- 📷 neither artist /
+- 💻 not a journalist /
+- 📷 neither  artist /
+- 🐺 nor a designer / 
+- 🍎 nor gardener /
+- 🔧 nor artisan / 
 - 🎓 nor sholar / 
+- ✂  nor coder / 
 - 🎛 nor DJ / 
-- 🍎 nor gardener / 
-- 🔧 nor an artisan / 
--  ( ͡° ͜ʖ ͡°) but surely we do stuff around underground Music, science and ''collaborative story telling''
 
+-  ( ͡° ͜ʖ ͡°) but surely we interested in many technics
+ 
 
+# 2021 we decolonize our digital uses 
+from how much it actualy cost to post a photo online to crypto NFTs, 
+we are currently being asked to reconsider the verry infrastructure of our web usages 
+so we had to decolonize our old portfolio by using github or gitlab soon:
 
-# 2021 was the year of creating a more low tech web environnement 
-# here's an intro:
+## - 2008-2021  > [mass media production](https://gambiolo.github.io/media-portfolio/) 
 
-## - 2008-2021 mass media production  > [portfolio](https://gambiolo.github.io/media-portfolio/) 
+## - 2013-2021  > [worldwide curating](https://gambiolo.github.io/curation-portfolio/)
 
-## - 2013-2021 worldwide curating > [links](https://gambiolo.github.io/curation-portfolio/)
+## - 2013-2021  > [anthropology in the Biotechnoscène](https://www.flickr.com/photos/79382209@N05/sets/?fbclid=IwAR02Tu1dptDLE2LMHFWjO0JiL_E5B7dy1zAO5iBM3kDxnuLrrV_I6qXmB50)
 
-## - 2013-2021 anthropology in the [Biotechnoscène](https://www.flickr.com/photos/79382209@N05/sets/?fbclid=IwAR02Tu1dptDLE2LMHFWjO0JiL_E5B7dy1zAO5iBM3kDxnuLrrV_I6qXmB50)
+## - linktree //> [8 hyperlinks](https://linktr.ee/dailylaurel)
 
-## - A linktree with deep > [hyperlinks](https://linktr.ee/dailylaurel)
-
-##  We produce content and videos in extreme environement here's an exemple for Viceland channel:
+##  One video collab we did with Viceland just to present how we leave
 
 [![also we do videos in extreme environement here's an extract ](https://user-images.githubusercontent.com/86488172/130331627-daa029dc-796e-4b87-ba34-52c3db63d900.png)](https://www.facebook.com/dailylaurel/videos/1822920581289077/ "Viceland collab")
 
 
 
-## finally we had the opportunity to do collabs with festivals, labels and various sponsors in the field of undeground music with:
+## lastly we had the opportunity to do collabs with festivals, labels and various sponsors in the field of undeground music. One could not have be done wihtout the other:
 
- 
 
-- Moodyman / 
-- Madlib /
-- Cymande 
+- Resident Advisor / 
 - Gilles Peterson /
-- Lord Quas /
-- Dekmantel /
-- Resident Advisor /
+- J.A.W familly /
 - Boiler Room /
 - Rough Trade /
 - Brainfeeder /
 - Ninja Tunes /
-- Carharttwip / 
+- Carharttwip /
+- Dimensions /
+- Lord Quas /
+- Dekmantel /
 - Rappcats /
-- Dimensions / 
-- J.A.W familly /
+- Moodyman /
+- Cymande /
+- Madlib /
+
+
+ 
+
+ 
+
 
 Cant even believe it
 
