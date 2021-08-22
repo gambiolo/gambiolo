@@ -1,8 +1,8 @@
 # Meta-transdisciplinarian is:
 
 - 💻 not a journalist /
-- 📷 neither  artist /
 - 🐺 nor a designer / 
+- 📷 neither artist /
 - 🍎 nor gardener /
 - 🔧 nor artisan / 
 - 🎓 nor sholar / 
@@ -12,10 +12,10 @@
 -  ( ͡° ͜ʖ ͡°) but surely we interested in many technics
  
 
-# 2021 we decolonize our digital uses 
+# 2021 time to decolonize our digital uses 
 from how much it actualy cost to post a photo online to crypto NFTs, 
-we are currently being asked to reconsider the verry infrastructure of our web usages 
-so we had to decolonize our old portfolio by using github or gitlab soon:
+we are currently being asked to reconsider the verry infrastructure of our digital usages 
+Here is a low tech versin of what used to be a verry hightech portfolio:
 
 ## - 2008-2021  > [mass media production](https://gambiolo.github.io/media-portfolio/) 
 
