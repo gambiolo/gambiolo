@@ -1,7 +1,3 @@
-[entry menu] 🥄
-
-.
-
 
 # meta-transdisciplinary is:
 
@@ -16,14 +12,6 @@
 
 
 -  ( ͡° ͜ʖ ͡°) but we surely interested in COSMO-TECHNICS.
-
-.
-
- 
-[Plat de resistance] 🍴
-
-
-.
 
 
 
@@ -55,18 +43,6 @@ Here is a low tech version of what used to be a verry HD cyber portfolio:
 - Rappcats /
 - Cymande /
 - Madlib /
-
-
-.
-
-
-
-[desert]  ☞ 🍩 ☜ 
-
-
-.
-
-
 
 
 ###  we -also- do videos in extreme environement here's an extract
