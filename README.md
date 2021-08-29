@@ -11,7 +11,7 @@
 - 📷 nor art /
 
 
--  ( ͡° ͜ʖ ͡°) but we surely interested in COSMO-TECHNICS.
+-  ( ͡° ͜ʖ ͡°) but we surely we're into [publishing](https://elpaquetedigitanne.substack.com/) < subscribe to ''el paquete Digitanne''
 
 
 
