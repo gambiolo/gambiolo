@@ -5,13 +5,13 @@
 - 🔧 nor artisanery /
 - 🍎 nor gardening / 
 - 🎓 nor sholarly / 
-- 🐺 nor design /
-- ✂  nor coding / 
-- 🎛 nor DJing / 
-- 📷 nor art /
+- 🐺 not design /
+- ✂  not coding / 
+- 🎛 not DJing / 
+- 📷 not art /
 
 
--  ( ͡° ͜ʖ ͡°) but we surely we're into [publishing](https://elpaquetedigitanne.substack.com/) < subscribe to ''el paquete Digitanne''
+-  ( ͡° ͜ʖ ͡°) but we surely into [publishing](https://elpaquetedigitanne.substack.com/) < subscribe to ''el paquete Digitanne''
 
 
 
