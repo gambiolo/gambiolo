@@ -1,22 +1,12 @@
 
-# meta-transdisciplinary is:
-
-- 💻 not journalism /
-- 🔧 nor artisanery /
-- 🍎 nor gardening / 
-- 🎓 nor sholarly / 
-- 🐺 not design /
-- ✂  not coding / 
-- 🎛 not DJing / 
-- 📷 not art /
-
-
--  ( ͡° ͜ʖ ͡°) but we surely into [publishing](https://elpaquetedigitanne.substack.com/) < subscribe to ''el paquete Digitanne''
+### Hi ! we publish a meta-transdisciplinarian [newsletter for the ''metaverse age''](https://elpaquetedigitanne.substack.com/) a mix of 💻 journalism 🔧 artisanery 🍎 gardening 🎓 anthropology 🐺 design ✂ decentralisation 🎛 music 🗺️ mapping 📷 decolonisation etc...
 
 
 
-# 2021 underdosing our digital traces:
-Here is a low tech version of what used to be a verry HD cyber portfolio:
+
+
+
+# Who we are:
 
 ### - 2008-2021  > [mass media production](https://gambiolo.github.io/media-portfolio/) 📺
 
