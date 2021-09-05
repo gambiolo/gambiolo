@@ -1,5 +1,6 @@
 
-### Hi @dailylaurel here ! With a few worldwide friends We just set up a publishing online entity call [''El Paquete Digitanne''](https://elpaquetedigitanne.substack.com/) a mix of 
+### Hi @dailylaurel 🐙 ! 
+With a few worldwide friends We just set up a publishing online entity call [''El Paquete Digitanne''](https://elpaquetedigitanne.substack.com/) a mix of 
 * 💻 journalism 
 * 📷 artisanery 
 * 🍎 gardening 
@@ -9,7 +10,7 @@
 * 🧪 science 
 * 🎛 music 
 * 🗺️ mapping 
-* 🔧 and radical stuff [linktree on current projects](https://linktr.ee/dailylaurel) 🐙
+* 🔧 and radical stuff 🐙[linktree on current projects](https://linktr.ee/dailylaurel) 
 
 
 
