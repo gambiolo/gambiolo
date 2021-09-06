@@ -1,6 +1,10 @@
 
-### Hi @dailylaurel 🐙 ! 
-With a few worldwide friends We just set up a publishing online entity call [''El Paquete Digitanne''](https://elpaquetedigitanne.substack.com/) a mix of 
+### Hi [dailylaurel](https://linktr.ee/dailylaurel) here 🐙 ! 
+
+We here on github to create DADOs (decentralized autonomous decolonized organisations) we build digital Kartels and cyber Guilds worldwide and we own our own servers just because we try to decolonize from big platforms #Killbill and try to lower our ennergy comsumption too... 
+
+
+If you want to know more we just set up a publishing online entity call [''El Paquete Digitanne''](https://elpaquetedigitanne.substack.com/) a mix of newsletter and:
 * 💻 journalism 
 * 📷 artisanery 
 * 🍎 gardening 
@@ -10,7 +14,8 @@ With a few worldwide friends We just set up a publishing online entity call [''E
 * 🧪 science 
 * 🎛 music 
 * 🗺️ mapping 
-* 🔧 and radical stuff 🐙[linktree on current projects](https://linktr.ee/dailylaurel) 
+* 🔧 dismantling recipies
+* and private parties worldwide
 
 
 
@@ -25,7 +30,7 @@ With a few worldwide friends We just set up a publishing online entity call [''E
 
 ### - 2013-2021  > [anthropology in the Biotechnosphere](https://www.flickr.com/photos/79382209@N05/sets/?fbclid=IwAR02Tu1dptDLE2LMHFWjO0JiL_E5B7dy1zAO5iBM3kDxnuLrrV_I6qXmB50) 🔬
 
-###  I also like to show a video collab I did with Viceland on how the Y generation lives in Oakland California:
+###  I did a collab with Viceland on how the Y generation lives in Oakland California, partialy filmed by yours truly:
 
 [![also we do videos in extreme environement here's an extract ](https://user-images.githubusercontent.com/86488172/130331627-daa029dc-796e-4b87-ba34-52c3db63d900.png)](https://www.facebook.com/dailylaurel/videos/1822920581289077/ "Viceland collab")
 
