@@ -1,5 +1,5 @@
 
-### Hi [dailylaurel](https://linktr.ee/dailylaurel) ### french Designer, Writer, Journalist, Photographer, filmMaker, Anthropologist, Cryptopunk & Critic theorist 🐙 ! 
+### Hi [dailylaurel](https://linktr.ee/dailylaurel) french Designer, Writer, Journalist, Photographer, filmMaker, Anthropologist, Cryptopunk & Critic theorist 🐙 ! 
 
 
 aka BIOHACKING SAFARI (Science)
