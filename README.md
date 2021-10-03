@@ -1,13 +1,17 @@
 
-### Hi [dailylaurel](https://linktr.ee/dailylaurel) 
+### Hi [dailylaurel](https://linktr.ee/dailylaurel) ### french Designer, Writer, Journalist, Photographer, filmMaker, Anthropologist, Cryptopunk & Critic theorist 🐙 ! 
+
 
 aka BIOHACKING SAFARI (Science)
+
 aka THE GAMBIOLOGITS (decolonising academia)
+
 aka TERROIR DEALER (Soil pimping)
+
 aka BENALLA RECORDS (music label)
+
 aka [''EL PAQUETE DIGITANNE''](https://elpaquetedigitanne.substack.com/) (news letter)
 
-### french Designer, Writer, Journalist, Photographer, filmMaker, Anthropologist, Cryptopunk & Critic theory 🐙 ! 
 
 
 ## Where we come from?
