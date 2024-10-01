@@ -5,21 +5,26 @@ My work can be seen on Rolling Stones, Viceland,  Nouvel Obsevateur, Canal + als
 Antidisciplinarity is key people also know me for:
 
 -BIOHACKING SAFARI (Science exploration)
+
 -GAMBIOLOGIST (decolonising academia)
+
 -TERROIR DEALER (agroforesty agriCULTURE)
+
 -BENALLA RECORDS (music label)
+
 -AQUAPOEIRA.XYZ (publish & meta)
 
 I also stream seasonal radio shows: 
+
 -Radio Flouka (paris) https://www.radioflouka.com/residents/terroir-dealer
+
 -Dublab (Los Angeles) https://www.dublab.com/archive/terroir-dealer-cumbiaquatica-05-19-24
 
 am currently running my 3rd year thesis in Chiapas on white supremacy post pandemic
-(nazism/sionism) and how new online narratives are infusing new ways of colonizing: 
-from the innocent wellness industries to the israel real estate mafia 
-and the new roads of western white touristic extractive economy and its slave system.
+'the palestinisation of mexico'' and how new online narratives are infusing new ways of colonizing: 
+from the innocent wellness industries to the israeli real estate mafia.
 
-aka [''EL PAQUETE DIGITANNE''](https://elpaquetedigitanne.substack.com/) (news letter)
+you can read some of my works here [''EL PAQUETE DIGITANNE''](https://elpaquetedigitanne.substack.com/)
 
 
 
@@ -33,9 +38,9 @@ aka [''EL PAQUETE DIGITANNE''](https://elpaquetedigitanne.substack.com/) (news l
 
 ### - 2013-2021  > [anthropology in the Biotechnosphere](https://www.flickr.com/photos/79382209@N05/sets/?fbclid=IwAR02Tu1dptDLE2LMHFWjO0JiL_E5B7dy1zAO5iBM3kDxnuLrrV_I6qXmB50) 🔬
 
-###  I'm also film maker @Viceland here an exemple of my creaft in the desert:
+###  I'm also film maker @Viceland here an exemple of my crafted desertic studies of silicon valley gentrifying culture in the desert:
 
-[![also we do videos in extreme environement here's an extract ](https://user-images.githubusercontent.com/86488172/130331627-daa029dc-796e-4b87-ba34-52c3db63d900.png)](https://www.facebook.com/dailylaurel/videos/1822920581289077/ "Viceland collab")
+[![ here's an extract ](https://user-images.githubusercontent.com/86488172/130331627-daa029dc-796e-4b87-ba34-52c3db63d900.png)](https://www.facebook.com/dailylaurel/videos/1822920581289077/ "Viceland collab")
 
 
 
